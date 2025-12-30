@@ -1,5 +1,5 @@
 
-[Download CV — MohammedMoniruzzamanKhan_CV.pdf](MohammedMoniruzzamanKhan_CV.pdf)
+[Download CV — Mohammed Moniruzzaman Khan_CV.pdf](MohammedMoniruzzamanKhan_CV.pdf)
 
 ---
 
