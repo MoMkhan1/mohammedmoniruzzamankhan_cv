@@ -1,6 +1,6 @@
 # 📄 Curriculum Vitae — Mohammed Moniruzzaman Khan
 
-👉 [Download CV (PDF)](https://raw.githubusercontent.com/MoMkhan1/mohammedmoniruzzamankhan_cv/main/Mohammed%20MoniruzzamanKhan_CV.pdf)
+👉 [Download CV (PDF)](https://raw.githubusercontent.com/MoMkhan1/mohammedmoniruzzamankhan_cv/main/Mohammed_Moniruzzaman_Khan_CV.pdf)
 
 ---
 
